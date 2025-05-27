@@ -1,1 +1,1 @@
-![github](https://github.com/user-attachments/assets/8a2251fe-4c83-43a2-9b01-5b771a1bfc9d)
+![og jpeg](https://github.com/user-attachments/assets/f028e8e4-3d5d-4039-931a-864e204ba005)
